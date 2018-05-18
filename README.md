@@ -1,2 +1,0 @@
-# desperadosec.github.io
-Blog
